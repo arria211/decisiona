@@ -98,7 +98,7 @@ Saat ini Decisiona masih Versi Development dan akan terus di perbaharui sesuai k
 
 
 
-						                                                                  	Padang 22 Februari 2026
+						                                                         Padang 22 Februari 2026
                                                                                           Ttd
 
                                                                                          ARRIA
